@@ -5,6 +5,7 @@
 - ☆.Please do not talk to me if you are under 16, it makes me uncomfortable.☆
 - ☆.Do not ask for my discord or friend me if you haven't spoken to me before, or if I'm unaware of your age.☆
 - ☆.I'm usually AFK, but feel free to C+H, whisper to interact if you don't see me active please.☆
+- ☆.Tonetags are highly appreciated!!.☆
 <!---
 MisterAbyss/MisterAbyss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
